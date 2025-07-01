@@ -16,7 +16,7 @@ I LOVE THESE GUYS :
 
 SPUNKY, ZYN, ITA, SASU, ROKI, LAW, JAX, WYATT (others I don't really feel like putting down but that's the gist.)
 
-I AM NOT VERY SOCIAL AND PROBABLY WILL NOT TALK TO YOU.
+I AM NOT VERY SOCIAL AND PROBABLY WILL NOT TALK TO YOU. I DON'T MIND IF YOU SIT WITH ME HOWEVER. I WON'T TELL YOU TO GO AWAY.
 
 
 idk what else to add, I'll make time for this another day.
