@@ -6,7 +6,7 @@ WELCOME TO WHATEVER THIS IS . . .
 ,      ![image](https://github.com/user-attachments/assets/245310e7-4dc2-4a31-9fbf-134c877d3d89)
 
 
-CALL ME  VAL  ☠︎︎  I'M 19 YEARS OF AGE..
+CALL ME  VAL  ☠︎︎  I'M 19 YEARS OF AGE.. DON'T BE WEIRD.
 
 (more info on my carrd.)
 ㅤㅤ
