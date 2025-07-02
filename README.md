@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/7a0ab7de-47e0-418c-ae48-c1083188e06a)
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘      ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=R4INB0W6xSIEGE&color=999999&label=♱&style=plastic)    ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=R4INB0W6xSIEGE&color=999999&label=♱&style=plastic)    ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 
