@@ -17,20 +17,21 @@
 
 ![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
-I CHERISH MY FRIENDS LIKE FAMILY.
+𝐼 𝐶𝐻𝐸𝑅𝐼𝑆𝐻 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐿𝐼𝐾𝐸 𝐹𝐴𝑀𝐼𝐿𝑌.
 
-I LOVE THESE GUYS : 
-
-SPUNKY, ZYN, ITA, SASU, ROKI, LAW, JAX, WYATT
+𝙎𝙋𝙐𝙉𝙆𝙔, 𝙕𝙔𝙉, 𝙅𝘼𝙓, 𝙄𝙏𝘼, 𝙎𝘼𝙎𝙐, 𝙍𝙊𝙆𝙄, 𝙇𝘼𝙒, 𝙒𝙔𝘼𝙏𝙏 >>>
 
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
-I AM NOT VERY SOCIAL AND PROBABLY WILL NOT TALK TO YOU. I DON'T MIND IF YOU SIT WITH ME HOWEVER. I WON'T TELL YOU TO GO AWAY.
+𝐼 𝐴𝑀 𝑁𝑂𝑇 𝑉𝐸𝑅𝑌 𝑆𝑂𝐶𝐼𝐴𝐿 𝐴𝑁𝐷 𝑃𝑅𝑂𝐵𝐴𝐵𝐿𝑌 𝑊𝐼𝐿𝐿 𝑁𝑂𝑇 𝑇𝐴𝐿𝐾 𝑇𝑂 𝑌𝑂𝑈. 𝐼 𝐷𝑂𝑁'𝑇 𝑀𝐼𝑁𝐷 𝐼𝐹 𝑌𝑂𝑈 𝑆𝐼𝑇 𝑊𝐼𝑇𝐻 𝑀𝐸 𝐻𝑂𝑊𝐸𝑉𝐸𝑅.
 
 
-PLEASE DO NOT ASK TO BE FRIENDS ON THE SPOT. GET TO KNOW ME FIRST. I RESPOND TO WHISPERS.
+𝑃𝐿𝐸𝐴𝑆𝐸 𝐷𝑂 𝑁𝑂𝑇 𝐴𝑆𝐾 𝑇𝑂 𝐵𝐸 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝑂𝑁 𝑇𝐻𝐸 𝑆𝑃𝑂𝑇. 
+
+𝐺𝐸𝑇 𝑇𝑂 𝐾𝑁𝑂𝑊 𝑀𝐸 𝐹𝐼𝑅𝑆𝑇.
+ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 idk what else to add, I'll make time for this another day.
 gulp
