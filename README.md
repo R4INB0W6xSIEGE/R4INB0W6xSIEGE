@@ -3,7 +3,9 @@
 ⠀⠀![image](https://github.com/user-attachments/assets/3298549a-edeb-429c-a04f-aec77de348ca)
 
 WELCOME TO WHATEVER THIS IS . . .
-,      ![image](https://github.com/user-attachments/assets/245310e7-4dc2-4a31-9fbf-134c877d3d89)
+
+![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
+
 
 
 CALL ME  VAL  ☠︎︎  I'M 19 YEARS OF AGE.. DON'T BE WEIRD.
