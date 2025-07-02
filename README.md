@@ -8,14 +8,24 @@
 
 
 
-𝐶𝐴𝐿𝐿 𝑀𝐸  𝑉𝐴𝐿  ☠︎︎  𝐼'𝑀 19 𝑌𝐸𝐴𝑅𝑆 𝑂𝐹 𝐴𝐺𝐸.. 𝐷𝑂𝑁'𝑇 𝐵𝐸 𝑊𝐸𝐼𝑅𝐷.
+𝐶𝐴𝐿𝐿 𝑀𝐸  𝑉𝐴𝐿  ☠︎︎ ,,
+
+𝐼'𝑀 19 𝑌𝐸𝐴𝑅𝑆 𝑂𝐹 𝐴𝐺𝐸.. 
+
+𝐷𝑂𝑁'𝑇 𝐵𝐸 𝑊𝐸𝐼𝑅𝐷.
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
+![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
 I CHERISH MY FRIENDS LIKE FAMILY.
+
 I LOVE THESE GUYS : 
 
-SPUNKY, ZYN, ITA, SASU, ROKI, LAW, JAX, WYATT (others I don't really feel like putting down but that's the gist.)
+SPUNKY, ZYN, ITA, SASU, ROKI, LAW, JAX, WYATT
+
+ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
 I AM NOT VERY SOCIAL AND PROBABLY WILL NOT TALK TO YOU. I DON'T MIND IF YOU SIT WITH ME HOWEVER. I WON'T TELL YOU TO GO AWAY.
 
