@@ -69,4 +69,5 @@ you came down far enough :) nice !
 
 Here's me in a suit lol
 
-![image](https://github.com/user-attachments/assets/3e3be113-4d2f-4e22-aeca-5f3fe5f03d64)
+![image](https://github.com/user-attachments/assets/d5f896bf-d55a-4b8d-833f-1e900be56700)
+
