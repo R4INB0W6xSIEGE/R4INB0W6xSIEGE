@@ -67,7 +67,6 @@ take a gander..
 
 you came down far enough :) nice !
 
-Here's me in a suit lol
+![image](https://github.com/user-attachments/assets/b6c834f2-c4fe-48c8-8290-9a9c53d2785f)
 
-![image](https://github.com/user-attachments/assets/d5f896bf-d55a-4b8d-833f-1e900be56700)
 
