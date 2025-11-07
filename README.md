@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/f52497cb-a5c8-49da-888e-55d722d70cfb)
+https://gifdb.com/images/high/r6-video-game-i5xg2f5qv2sc5wjg.gif![image](https://github.com/user-attachments/assets/486ac010-70bf-4e86-aa22-4d1b1339241c)
+
 
 
 
