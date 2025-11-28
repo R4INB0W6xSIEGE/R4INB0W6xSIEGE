@@ -8,7 +8,7 @@
 
 
 
-𝑊𝐸𝐿𝐶𝑂𝑀𝐸 𝑇𝑂 𝑊𝐻𝐴𝑇𝐸𝑉𝐸𝑅 𝑇𝐻𝐼𝑆 𝐼𝑆 . . .
+
 
 ![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
