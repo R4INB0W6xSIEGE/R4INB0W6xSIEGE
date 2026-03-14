@@ -27,7 +27,7 @@
 𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: ZYN, JAX, COKE, AJ, GBS
 
 GBS GC »»»»
-(@OBITO-UCHlHA  , @rokisko , @curse-manipulation , @solarparfait , @tsuku-yome)
+(@[OBITO-UCHlHA](https://github.com/OBITO-UCHlHA)  , @rokisko , @curse-manipulation , @solarparfait , @tsuku-yome)
 
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
