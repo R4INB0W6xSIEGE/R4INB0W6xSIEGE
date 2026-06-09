@@ -16,7 +16,7 @@
 
 ⋮ ⌗ ┆ 𝐶𝐴𝐿𝐿 𝑀𝐸  𝑉𝐴𝐿  ☠︎︎ ,, (or Aaron)
 
-𝐼'𝑀 19 𝑌𝐸𝐴𝑅𝑆 𝑂𝐹 𝐴𝐺𝐸.. 
+𝐼'𝑀 20 𝑌𝐸𝐴𝑅𝑆 𝑂𝐹 𝐴𝐺𝐸.. 
 
 𝐷𝑂𝑁'𝑇 𝐵𝐸 𝑊𝐸𝐼𝑅𝐷.
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
@@ -24,7 +24,7 @@
 
 ⋮ ⌗ ┆ 𝐼 𝐶𝐻𝐸𝑅𝐼𝑆𝐻 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐿𝐼𝐾𝐸 𝐹𝐴𝑀𝐼𝐿𝑌.
 
-𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: ZYN, JAX, COKE, AJ, GBS
+𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: (Secret), ZYN, JAX, COKE, AJ, PRESLEY, GBS
 
 GBS GC »»»»
 (@[OBITO-UCHlHA](https://github.com/OBITO-UCHlHA)  , [@rokisko](https://github.com/rokisko) , [@curse-manipulation](https://github.com/curse-manipulation) , [@solarparfait](https://github.com/solarparfait) , [@tsuku-yome](https://github.com/itadei))
