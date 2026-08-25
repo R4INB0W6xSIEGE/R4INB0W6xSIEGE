@@ -24,7 +24,7 @@
 
 ⋮ ⌗ ┆ 𝐼 𝐶𝐻𝐸𝑅𝐼𝑆𝐻 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐿𝐼𝐾𝐸 𝐹𝐴𝑀𝐼𝐿𝑌.
 
-𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: (Secret), ZYN, JAX, COKE, AJ, PRESLEY, GBS
+𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: ZYN, JAX, GBS
 
 GBS GC »»»»
 (@[OBITO-UCHlHA](https://github.com/OBITO-UCHlHA)  , [@rokisko](https://github.com/rokisko) , [@curse-manipulation](https://github.com/curse-manipulation) , [@solarparfait](https://github.com/solarparfait) , [@tsuku-yome](https://github.com/itadei))
