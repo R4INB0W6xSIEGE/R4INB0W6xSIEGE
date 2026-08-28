@@ -63,5 +63,4 @@ idk what else to add, I'll make time for this another day.
 
 take a gander..
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f50000&bar_color_cover=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&redirect=true)
+https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31kkfk6w7fu3liojhh74zliogr6y&count=1&now_playing=0&album=1&profile=off&username=off&footer=wave&artist_color=ccccff&accent_color=666699&logo_color=333666
