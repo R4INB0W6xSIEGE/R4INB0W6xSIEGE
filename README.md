@@ -64,4 +64,4 @@ idk what else to add, I'll make time for this another day.
 take a gander..
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f50000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&cover_image=true&theme=novatorem&show_offline=true&background_color=006699&interchange=false&profanity=false&hide_remaster=false&bar_color=f50000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&redirect=true)
