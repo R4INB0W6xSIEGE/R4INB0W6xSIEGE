@@ -63,4 +63,4 @@ idk what else to add, I'll make time for this another day.
 
 take a gander..
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nj3gvhibbvbewawrfpuagxxiuu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kkfk6w7fu3liojhh74zliogr6y&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ac0000)](https://github.com/kittinan/spotify-github-profile)
