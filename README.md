@@ -1,6 +1,7 @@
-![image](https://github.com/user-attachments/assets/daacc018-7aab-4548-adce-1b4a388f58d9)
+<img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
 
 
+[![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31kkfk6w7fu3liojhh74zliogr6y&count=1&album=1&profile=off&username=off&footer=wave&artist_color=ccccff&accent_color=666699&logo_color=333666)](https://open.spotify.com/user/31kkfk6w7fu3liojhh74zliogr6y)
 
 
 
@@ -12,7 +13,7 @@
 
 ![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
-<img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
+
 
 ⋮ ⌗ ┆ 𝐶𝐴𝐿𝐿 𝑀𝐸  𝑉𝐴𝐿  ☠︎︎ ,, (or Aaron)
 
@@ -45,7 +46,7 @@ GBS GC »»»»
 𝐼 𝐻𝐴𝑉𝐸 𝑆𝑂𝐶𝐼𝐴𝐿 𝐴𝑁𝑋𝐼𝐸𝑇𝑌, 𝐴𝐷𝐷/𝐴𝐷𝐻𝐷, 𝐴𝑁𝐷 𝑇𝑅𝐴𝑈𝑀𝐴.
 
 
-𝐼 𝑀𝐴𝐾𝐸 𝐸𝑋𝑃𝐿𝐼𝐶𝐼𝑇/18+ 𝐽𝑂𝐾𝐸𝑆 𝐴𝑁𝐷 𝐶𝑂𝑀𝑀𝐸𝑁𝑇𝑆, 𝐼𝐹 𝑌𝑂𝑈 𝐷𝑂 𝑁𝑂𝑇 𝐿𝐼𝐾𝐸 𝑇𝐻𝐼𝑆 𝑂𝑅 𝐴𝑅𝐸 𝑈𝑁𝐷𝐸𝑅 𝑇𝐻𝐸 𝐴𝐺𝐸 𝑂𝐹 18, 𝐷𝑂 𝐿𝐸𝑇 𝑀𝐸 𝐾𝑁𝑂𝑊 𝐼𝑁 𝐴𝐷𝑉𝐴𝑁𝐶𝐸.
+𝐼 𝑀𝐴𝐾𝐸 𝐸𝑋𝑃𝐿𝐼𝐶𝐼𝑇/18+ 𝐽𝑂𝐾𝐸𝑆 𝐴𝑁𝐷 𝐶𝑂𝑀𝑀𝐸𝑁𝑇𝑆, 𝐼𝐹 𝑌𝑂𝑈 𝐷𝑂 𝑁𝑂𝑇 𝐿𝐼𝐾𝐸 𝑇𝐻𝐼𝑆 𝑂𝑅 𝐴𝑅𝐸 𝑈𝑁𝐷𝐸𝑅 𝑇𝐻𝐸 𝐴𝐺𝐸 𝑂𝐹 18, 𝐷𝑂 𝐿𝐸𝑇 𝑀𝐸 𝐾𝑁𝑂𝑊 𝐼𝑁 𝐴𝐷𝑉𝐴𝑁𝐶𝐸. i make flirty comments/jokes when comfortable or if you’re comfortable with it. I am 20, I will NOT make those comments to anyone under 18.
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
@@ -58,9 +59,3 @@ GBS GC »»»»
 𝐼 𝐿𝑂𝑉𝐸 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐸𝑄𝑈𝐴𝐿𝐿𝑌 𝑆𝑂 𝐷𝑂𝑁'𝑇 𝐺𝐸𝑇 𝑀𝐴𝐷 𝐼𝐹 𝐼'𝑀 𝑁𝑂𝑇 𝑃𝐴𝑌𝐼𝑁𝐺 𝐴𝑇𝑇𝐸𝑁𝑇𝐼𝑂𝑁 𝑇𝑂 𝑌𝑂𝑈 𝐴𝑇 𝑇𝐻𝐸 𝑀𝑂𝑀𝐸𝑁𝑇, 𝐼'𝐿𝐿 𝐺𝐸𝑇 𝑇𝑂 𝑌𝑂𝑈 𝑊𝐻𝐸𝑁 𝐼 𝐶𝐴𝑁.
 
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-idk what else to add, I'll make time for this another day.
-
-take a gander..
-
-[![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31kkfk6w7fu3liojhh74zliogr6y&count=1&album=1&profile=off&username=off&footer=wave&artist_color=ccccff&accent_color=666699&logo_color=333666)](https://open.spotify.com/user/31kkfk6w7fu3liojhh74zliogr6y)
