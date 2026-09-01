@@ -1,4 +1,4 @@
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=R4INB0W6xSIEGE&color=999999&label=♱&style=plastic)    ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+     ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=R4INB0W6xSIEGE&color=999999&label=♱&style=plastic)    ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 <img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
@@ -8,7 +8,7 @@
 
 
 
-ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 
@@ -23,8 +23,8 @@
 𝐼'𝑀 20 𝑌𝐸𝐴𝑅𝑆 𝑂𝐹 𝐴𝐺𝐸.. 
 
 𝐷𝑂𝑁'𝑇 𝐵𝐸 𝑊𝐸𝐼𝑅𝐷.
-ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
+ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ⋮ ⌗ ┆ 𝐼 𝐶𝐻𝐸𝑅𝐼𝑆𝐻 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐿𝐼𝐾𝐸 𝐹𝐴𝑀𝐼𝐿𝑌.
 
@@ -52,6 +52,7 @@ GBS GC »»»»
 𝐼 𝑀𝐴𝐾𝐸 𝐸𝑋𝑃𝐿𝐼𝐶𝐼𝑇/18+ 𝐽𝑂𝐾𝐸𝑆 𝐴𝑁𝐷 𝐶𝑂𝑀𝑀𝐸𝑁𝑇𝑆, 𝐼𝐹 𝑌𝑂𝑈 𝐷𝑂 𝑁𝑂𝑇 𝐿𝐼𝐾𝐸 𝑇𝐻𝐼𝑆 𝑂𝑅 𝐴𝑅𝐸 𝑈𝑁𝐷𝐸𝑅 𝑇𝐻𝐸 𝐴𝐺𝐸 𝑂𝐹 18, 𝐷𝑂 𝐿𝐸𝑇 𝑀𝐸 𝐾𝑁𝑂𝑊 𝐼𝑁 𝐴𝐷𝑉𝐴𝑁𝐶𝐸. i make flirty comments/jokes when comfortable or if you’re comfortable with it. I am 20, I will NOT make those comments to anyone under 18.
 
 I prefer to keep my ‘relationship’ status classified, no one needs to know my business. The only people who know are the ones who are very close to me. (example: the people that are listed above.)
+
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
