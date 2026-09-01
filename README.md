@@ -12,7 +12,7 @@
 
 ![image](https://github.com/user-attachments/assets/06fd60b6-49e0-44fc-aba8-8221bf3abbc0)
 
-
+<img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
 
 ⋮ ⌗ ┆ 𝐶𝐴𝐿𝐿 𝑀𝐸  𝑉𝐴𝐿  ☠︎︎ ,, (or Aaron)
 
@@ -64,8 +64,3 @@ idk what else to add, I'll make time for this another day.
 take a gander..
 
 [![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31kkfk6w7fu3liojhh74zliogr6y&count=1&album=1&profile=off&username=off&footer=wave&artist_color=ccccff&accent_color=666699&logo_color=333666)](https://open.spotify.com/user/31kkfk6w7fu3liojhh74zliogr6y)
-
-
-
-
-<img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
