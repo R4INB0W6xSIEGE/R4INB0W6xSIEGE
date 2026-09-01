@@ -1,3 +1,5 @@
+See what I’m actively doing :)   —-v
+
 <img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
 
 
@@ -25,7 +27,7 @@
 
 ⋮ ⌗ ┆ 𝐼 𝐶𝐻𝐸𝑅𝐼𝑆𝐻 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐿𝐼𝐾𝐸 𝐹𝐴𝑀𝐼𝐿𝑌.
 
-𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: ZYN, JAX, GBS
+𝐌𝐲 𝐊𝐢𝐭𝐭𝐞𝐧𝐬: ZYN, JAX, PRESLEY, JASON, GBS
 
 GBS GC »»»»
 (@[OBITO-UCHlHA](https://github.com/OBITO-UCHlHA)  , [@rokisko](https://github.com/rokisko) , [@curse-manipulation](https://github.com/curse-manipulation) , [@solarparfait](https://github.com/solarparfait) , [@tsuku-yome](https://github.com/itadei))
@@ -47,6 +49,8 @@ GBS GC »»»»
 
 
 𝐼 𝑀𝐴𝐾𝐸 𝐸𝑋𝑃𝐿𝐼𝐶𝐼𝑇/18+ 𝐽𝑂𝐾𝐸𝑆 𝐴𝑁𝐷 𝐶𝑂𝑀𝑀𝐸𝑁𝑇𝑆, 𝐼𝐹 𝑌𝑂𝑈 𝐷𝑂 𝑁𝑂𝑇 𝐿𝐼𝐾𝐸 𝑇𝐻𝐼𝑆 𝑂𝑅 𝐴𝑅𝐸 𝑈𝑁𝐷𝐸𝑅 𝑇𝐻𝐸 𝐴𝐺𝐸 𝑂𝐹 18, 𝐷𝑂 𝐿𝐸𝑇 𝑀𝐸 𝐾𝑁𝑂𝑊 𝐼𝑁 𝐴𝐷𝑉𝐴𝑁𝐶𝐸. i make flirty comments/jokes when comfortable or if you’re comfortable with it. I am 20, I will NOT make those comments to anyone under 18.
+
+I prefer to keep my ‘relationship’ status classified, no one needs to know my business. The only people who know are the ones who are very close to me. (example: the people that are listed above.)
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
@@ -59,3 +63,6 @@ GBS GC »»»»
 𝐼 𝐿𝑂𝑉𝐸 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐸𝑄𝑈𝐴𝐿𝐿𝑌 𝑆𝑂 𝐷𝑂𝑁'𝑇 𝐺𝐸𝑇 𝑀𝐴𝐷 𝐼𝐹 𝐼'𝑀 𝑁𝑂𝑇 𝑃𝐴𝑌𝐼𝑁𝐺 𝐴𝑇𝑇𝐸𝑁𝑇𝐼𝑂𝑁 𝑇𝑂 𝑌𝑂𝑈 𝐴𝑇 𝑇𝐻𝐸 𝑀𝑂𝑀𝐸𝑁𝑇, 𝐼'𝐿𝐿 𝐺𝐸𝑇 𝑇𝑂 𝑌𝑂𝑈 𝑊𝐻𝐸𝑁 𝐼 𝐶𝐴𝑁.
 
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+<img width="500" height="230" alt="image" src="https://github.com/user-attachments/assets/11743ea7-f8b5-478d-8543-af5edc990213" />
+
