@@ -1,4 +1,5 @@
-See what I’m actively doing :)   —-v
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=R4INB0W6xSIEGE&color=999999&label=♱&style=plastic)    ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
 
 <img src="https://steam-widget.com/widget/img?id=76561199439964687&gameListSize=3&width=900&style=MIDNIGHT" width="900">
 
@@ -7,7 +8,7 @@ See what I’m actively doing :)   —-v
 
 
 
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=R4INB0W6xSIEGE&color=999999&label=♱&style=plastic)    ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 
@@ -22,7 +23,7 @@ See what I’m actively doing :)   —-v
 𝐼'𝑀 20 𝑌𝐸𝐴𝑅𝑆 𝑂𝐹 𝐴𝐺𝐸.. 
 
 𝐷𝑂𝑁'𝑇 𝐵𝐸 𝑊𝐸𝐼𝑅𝐷.
-ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 
 ⋮ ⌗ ┆ 𝐼 𝐶𝐻𝐸𝑅𝐼𝑆𝐻 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐿𝐼𝐾𝐸 𝐹𝐴𝑀𝐼𝐿𝑌.
