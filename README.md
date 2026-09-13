@@ -64,6 +64,7 @@ I prefer to keep my ‘relationship’ status classified, no one needs to know m
 
 𝐼 𝐿𝑂𝑉𝐸 𝑀𝑌 𝐹𝑅𝐼𝐸𝑁𝐷𝑆 𝐸𝑄𝑈𝐴𝐿𝐿𝑌 𝑆𝑂 𝐷𝑂𝑁'𝑇 𝐺𝐸𝑇 𝑀𝐴𝐷 𝐼𝐹 𝐼'𝑀 𝑁𝑂𝑇 𝑃𝐴𝑌𝐼𝑁𝐺 𝐴𝑇𝑇𝐸𝑁𝑇𝐼𝑂𝑁 𝑇𝑂 𝑌𝑂𝑈 𝐴𝑇 𝑇𝐻𝐸 𝑀𝑂𝑀𝐸𝑁𝑇, 𝐼'𝐿𝐿 𝐺𝐸𝑇 𝑇𝑂 𝑌𝑂𝑈 𝑊𝐻𝐸𝑁 𝐼 𝐶𝐴𝑁.
 
+FEEL FREE TO ASK ME ANYTHING. I RESPOND MAINLY THROUGH WHISPERS IF I’M OFF TAB. WELCOME TO SIT WITH ME AS WELL. I DONT BITE.
 ㅤㅤ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 <img width="500" height="230" alt="image" src="https://github.com/user-attachments/assets/11743ea7-f8b5-478d-8543-af5edc990213" />
